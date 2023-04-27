@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RishAbh
 - 👀 I’m interested in "going outside the limits"
-- 🌱 I’m currently learning "your mind"
+- 🌱 I’m currently learning "own mind"
 - 💞️ I’m looking to "collaborate with you 🥲"
 - 📫 How to reach me "Take right from wrong"
 
